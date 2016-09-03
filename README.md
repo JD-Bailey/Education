@@ -1,0 +1,2 @@
+# Education
+just teaching myself
